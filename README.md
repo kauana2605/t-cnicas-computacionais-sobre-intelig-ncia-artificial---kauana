@@ -1,0 +1,1 @@
+# t-cnicas-computacionais-sobre-intelig-ncia-artificial---kauana
